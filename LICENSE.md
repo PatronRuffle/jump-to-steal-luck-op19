@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks secure Scripts is the best jump to steal lucky blocks Script, featuring aimbot and auto-sell. Safe and powerful for all
 
 
 
